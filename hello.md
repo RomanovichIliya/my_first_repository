@@ -1,1 +1,1 @@
-teftelka suka dobraya
+teftelka suka 
